@@ -28,3 +28,4 @@ Asjad#0060 is the Developer of this Recorder
 [Asjad Personal Site](https://www.asjadowo.xyz/)
 
 [Discord Server](https://discord.gg/dTDSpwBNgu)
+
